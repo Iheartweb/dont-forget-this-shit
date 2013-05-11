@@ -1,5 +1,5 @@
 # Happiness
-## 10 instant tips to be happier now
+## 11 instant tips to be happier now
 
 A few years ago, on a morning like any other, I had a sudden realization: I was in danger of wasting my life.
 
