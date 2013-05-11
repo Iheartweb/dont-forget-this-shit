@@ -90,7 +90,7 @@ Why did I get to set the assignments?
 Some people assume happiness is mostly a matter of inborn temperament: You're born an Eeyore or a Tigger, and that's that.
 
 ### 11. Love what you do.
-If you manage to be able to do what you love and still provide the necities, consider yourself lucky. For, thoose enough that don't do what we love, instead, we should love what we do. Don't be afraid to put yourself into it, to explore it, and to be passionate about it. If you do, you might find yourself, doiing what you love.
+If you manage to be able to do what you love and still provide the necessities, consider yourself lucky. For, those of us that don't get to do what we love, instead, we should love what we do. Don't be afraid to put yourself into it, to admire and explore it, to respect it and to be passionate about it. If you do, you might find yourself – doing what you love.
 
 Taking time to reflect, and making conscious steps to make your life happier, really does work. So use these tips to start your own Happiness Project. I promise it won't take you a whole year.
 
