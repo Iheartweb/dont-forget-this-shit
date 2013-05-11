@@ -5,10 +5,10 @@ Don't Forget This Shit!
 Happiness
 --------
 
-* [11 instant tips to be happier now](/dont-forget-this-shit/blob/master/happiness/instant_tips.md)
-* [The No Complaining Rule](/dont-forget-this-shit/blob/master/happiness/no_complaining_rule.md)
+* [11 instant tips to be happier now](/happiness/instant_tips.md)
+* [The No Complaining Rule](/happiness/no_complaining_rule.md)
 
 Success
 --------
 
-* [Think and Grow Rich](/dont-forget-this-shit/blob/master/success/think_and_grow_rich.md)
+* [Think and Grow Rich](/success/think_and_grow_rich.md)
